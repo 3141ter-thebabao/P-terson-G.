@@ -9,4 +9,4 @@ I use this space for my organization and shade my works.
 
 00001126749977sp@aluno.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/stephen-curry-rings-gif-26133902)
+![](https://tenor.com/bVOMI.gif)
