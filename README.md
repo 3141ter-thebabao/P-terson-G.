@@ -9,6 +9,6 @@ I use this space for my organization and shade my works.
 
 00001126749977sp@aluno.educacao.sp.gov.br
 
-![](![image](https://github.com/user-attachments/assets/1231bda4-3462-4f2a-be9a-420b0f441201)
+(![image](https://github.com/user-attachments/assets/1231bda4-3462-4f2a-be9a-420b0f441201)
 
 
